@@ -20,4 +20,4 @@
 
 通过这些标准的筛选，您可以快速找到适合的日本AV免费资源平台，提升您的观影体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/gmz20250711/rbriben10 )</span>
